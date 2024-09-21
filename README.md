@@ -1,7 +1,7 @@
-👋 Hi, I’m @cavimazzuca
-👀 I’m interested in 🐙
-🌱 I’m currently learning bash and C
-💞️ I’m looking to collaborate on 🐙🐙🐙
+- 👋 Hi, I’m @cavimazzuca
+- 👀 I’m interested in 🐙
+- 🌱 I’m currently learning bash and C
+- 💞️ I’m looking to collaborate on 🐙🐙🐙
 - 📫 How to reach me: 🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙
 😄 Prono🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙
 🐙🐙Fun fact🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙🐙
